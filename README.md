@@ -1,16 +1,16 @@
 # Max on the Moon
-Printable version of an animated story about a cat that travels to the moon to find someone special. You can download the printable version here:  \
+Printable version of an animated story about a cat that travels to the moon to find someone special. You can download the printable version here:    
 https://raw.githubusercontent.com/shawn-eary/moonMax/main/MaxOnTheMoonPrintableNoDRM.pdf
 
 ## Animated Version (PG)
 The printable book is rated G, but the animated version is voluntarily rated PG for the following reasons:
 1. The animated version has a sad ending where the parents separate. Most three and four year old children will not recognize what is happening, but you need to be ready to explain to your toddler if they start asking questions. The sad ending was removed from the printable book. I may remove the sad ending from the animated version some day also, but YouTube will not let me post over existing videos (in place). In order to do that, I will have to take the old video down and repost a new one.
-2. The animated version has a mild explosion where the communist Chinese flag is in effect "bombed". The explosion is not particularly agreessive and it very low-fidelity, but even though I did "explosions" when I played Legos (or whatever) with my daughters when they were little, you may not want your child acting wild. Acting wild with your child at this age, might lead to hyperactivity or problems with impulse-control. Also, two to four year olds are not likely to understand the threat that the Communist Party of China (CCP) poses to the United States. This is something your child will need to learn as they grow older presuming the threat still exists then. The FBI has a few high quaility videos warning against the dangers posed by Communism, this is one of them:
-https://www.youtube.com/watch?v=GdapE82GceA  \
+2. The animated version has a mild explosion where the communist Chinese flag is in effect "bombed". The explosion is not particularly agreessive and it very low-fidelity, but even though I did "explosions" when I played Legos (or whatever) with my daughters when they were little, you may not want your child acting wild. Acting wild with your child at this age, might lead to hyperactivity or problems with impulse-control. Also, two to four year olds are not likely to understand the threat that the Communist Party of China (CCP) poses to the United States. This is something your child will need to learn as they grow older presuming the threat still exists then. The FBI has a few high quaility videos warning against the dangers posed by Communism, this is one of them:  
+https://www.youtube.com/watch?v=GdapE82GceA  
 3. There is some rather crude and poorly written punk rock music at the end of the animated version. If you are strongly religious (like I am), you **may** feel uncomfortable with a very young child listening to something so "hash".
 
-If you are a parent, you can view the animated version at
-https://www.youtube.com/watch?v=QlCSk5KYhRc  \
+If you are a parent, you can view the animated version at  
+https://www.youtube.com/watch?v=QlCSk5KYhRc  
 and decide if your child is old enough to tolerate it. If you child is too young, you can stick with the printed book linked above.
 
 

@@ -11,11 +11,11 @@ https://www.youtube.com/watch?v=GdapE82GceA
 
 If you are a parent, you can view the animated version at  
 https://www.youtube.com/watch?v=QlCSk5KYhRc  
-and decide if your child is old enough to tolerate it. If you child is too young, you can stick with the printed book linked above.
+and decide if your child is old enough to tolerate it. If your child is too young, you can stick with the printed book linked above.
 
 
 ## Dedication
-In reality, I **want** to dedicate this toddler story to all three of my daughters: Kristen Grace Eary, Caitlin Faith Eary and Sarah Hope Eary, but it was my youngest daughter Hope who convinced me to make a YouTube post of me reading a story. As much as I desperately wanted to read Margaret Wise Brown's classics "Goodnight Moon" and/or "Big Read Barn", I do not have the legal rights to do so. For that reason, I wrote "Max on the Moon". I will never write as elequantly as Margaret Wise Brown, but my Hope is that my children will understand how much I love them:
+In reality, I **want** to dedicate this toddler story to all three of my daughters: Kristen Grace Eary, Caitlin Faith Eary and Sarah Hope Eary, but it was my youngest daughter Hope who convinced me to make a YouTube post of me reading a story. As much as I desperately wanted to read Margaret Wise Brown's classics "Goodnight Moon" and/or "Big Red Barn", I do not have the legal rights to do so. For that reason, I wrote "Max on the Moon". I will never write as elequantly as Margaret Wise Brown, but my Hope is that my children will understand how much I love them:
 https://soundcloud.com/shawn-eary/story-time
 
 ## Copyright
